@@ -1,8 +1,6 @@
 # Inveginuity
 
-Here's the science:
-
-Inveginuity is a new mechanism of robot arm. It starts with a competition for a graffiti wall art bot...
+Inveginuity starts with a competition for a graffiti wall art bot...
 ![graffiti wall art bot](https://github.com/SwedenDigTec/Inveginuity/assets/162095228/de3dfc4e-b003-4de5-9e66-1adba1aba888)
 
 It has a simple telescopic design using RepRap wheels and timing belts.
