@@ -27,6 +27,9 @@ Let’s be the first to fabricate telescopic power limbs with them. Trial and er
 
 Rainbow Volcano:
 
-Society today is based on black volcanoes which are transformed by advanced intelligence monkeys, into millions of plastic objects and chemicals. They fall out onto the world and dark volcano derivatives then flow into rivers and oceans, in PVC and polistyrene islands.
-The monkeys have made humungous chimney machines that expel chemical volcano products into the atmosphere, and cars which burn refined volcano juice. Their brains are radio commanded by the overlords of the volcanos of darkness.
+Society today is based on black volcanoes which are transformed by advanced intelligence monkeys, into millions of plastic objects and chemicals. They fall out onto the world and dark volcano derivatives then flow into rivers and oceans, in PVC and polystirene islands.
+
+The monkeys have made humungous chimney machines that burn chemical volcano products into the atmosphere, and cars which burn refined volcano juice. Their brains are radio commanded by the overlords of the volcanos of darkness.
 This project is about the concept of rainbow volcanos, Grainbolcanos, based on a rebel group of monkeys that design wind, sun, hydro and geo electron machines. 
+
+Fun Fact: In The West, we have mined 3 times Toba Supervolcano's quantity including 1.3 KM3 of coal and oil. 
